@@ -1,0 +1,1 @@
+# shashastore.ru
